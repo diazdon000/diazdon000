@@ -9,8 +9,15 @@ In my free time I usually play..
 
 And some others that I can't remember the names of.
 
-I like butter bread, its really good.
+Whenever I am eating I prefer...
+- Cheeseburgers
+- Chicken (Wings, Strips, Nuggets, Whatever.)
+- Grilled Cheese Sandwiches
+- Anything that is italian
 
-I dislike coconuts, can't stand the flavor of them. It's possible I'm not eating it with the right combination though.
+I especially eat these things when the only other things on the menu are...
+- Fish that isnt Cod or Salmon (The only I've tried and enjoyed.)
+- The majority of salads
+- Noodles that smell really fishy to the extent that I gag
 
-Favortie color: Java
+Favortie color: Red 🔴
