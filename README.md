@@ -10,5 +10,7 @@ In my free time I usually play..
 And some others that I can't remember the names of.
 
 I like butter bread, its really good.
+
 I dislike coconuts, can't stand the flavor of them. It's possible I'm not eating it with the right combination though.
+
 Favortie color: Java
