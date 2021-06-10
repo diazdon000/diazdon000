@@ -13,7 +13,7 @@ Whenever I am eating I prefer...
 - Cheeseburgers
 - Chicken (Wings, Strips, Nuggets, Whatever.)
 - Grilled Cheese Sandwiches
-- Anything that is italian
+- Anything that is Italian
 
 I especially eat these things when the only other things on the menu are...
 - Fish that isnt Cod or Salmon (The only I've tried and enjoyed.)
