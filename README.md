@@ -19,5 +19,3 @@ I especially eat these things when the only other things on the menu are...
 - Fish that isnt Cod or Salmon (The only I've tried and enjoyed.)
 - The majority of salads
 - Noodles that smell really fishy to the extent that I gag
-
-Favortie color: Red 🔴
